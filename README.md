@@ -1,1 +1,1 @@
-## Sycamore Bento Grid Assessmet
+## Sycamore Bento Grid Assessment
